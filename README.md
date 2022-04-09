@@ -1,2 +1,2 @@
-# 777.github.io
-小七发布页
+# 小七永久地址发布页
+# [777.github.io](https://seven-737.github.io/)
